@@ -11,8 +11,6 @@
 "૮₍ •⤙•˶ [Straw](https://strawberrymilkshxke.straw.page) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
 </div>
 
-> *// i also block freely no matter what platform even if thats just a ship!*
-
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
 
 <img src="https://i.pinimg.com/736x/ee/a0/5f/eea05fa4581c9a60c5c5093e1f3a2720.jpg" width="153"><img src="https://i.pinimg.com/736x/d0/3c/e5/d03ce5678f0ae7a1cd37ec486e0743f9.jpg" width="123"><img src="https://i.pinimg.com/736x/31/e1/62/31e1626abd8f2780d51f28fc358bc218.jpg" width="123"><img src="https://i.pinimg.com/736x/0a/90/3f/0a903f7a891e15dd93dba251e45f767d.jpg" width="123"><img src="https://i.pinimg.com/736x/38/53/0d/38530d32c1cdb5562648446ee26c136f.jpg" width="127"><img src="https://i.pinimg.com/736x/4c/8a/4d/4c8a4d28235d4f788388ee3f7b751132.jpg" width="123"><img src="https://i.pinimg.com/736x/2f/48/46/2f4846e08eea512bd800b6268b50cd5d.jpg" width="74">
