@@ -17,7 +17,7 @@
 
 <img src="https://64.media.tumblr.com/0555d124be232092741c971fcf6b1018/f7926748b942db2e-b4/s540x810/25e4492da31def7091c1d3e066ced5c0a0a627d1.pnj" width="1000">
 
-<img src="https://i.pinimg.com/1200x/6a/05/21/6a0521674b72ee5c43cac7ff69d02cdb.jpg" width="153">
+<img src="https://i.pinimg.com/1200x/6a/05/21/6a0521674b72ee5c43cac7ff69d02cdb.jpg" width="400">
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
