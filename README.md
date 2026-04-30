@@ -8,7 +8,7 @@
 
 <div align="center">
   
-"૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [TUMBLR Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
+"૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
 </div>
 
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
