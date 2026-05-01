@@ -17,6 +17,13 @@
 
 <img src="https://i.pinimg.com/736x/ee/a0/5f/eea05fa4581c9a60c5c5093e1f3a2720.jpg" width="153"><img src="https://i.pinimg.com/736x/d0/3c/e5/d03ce5678f0ae7a1cd37ec486e0743f9.jpg" width="123"><img src="https://i.pinimg.com/736x/31/e1/62/31e1626abd8f2780d51f28fc358bc218.jpg" width="123"><img src="https://i.pinimg.com/736x/0a/90/3f/0a903f7a891e15dd93dba251e45f767d.jpg" width="123"><img src="https://i.pinimg.com/736x/38/53/0d/38530d32c1cdb5562648446ee26c136f.jpg" width="127"><img src="https://i.pinimg.com/736x/4c/8a/4d/4c8a4d28235d4f788388ee3f7b751132.jpg" width="123"><img src="https://i.pinimg.com/736x/2f/48/46/2f4846e08eea512bd800b6268b50cd5d.jpg" width="74">
 
+<img src="https://64.media.tumblr.com/466b5ebf66268edf43b988e20ba7b649/25306075b622c475-a4/s540x810/01ac719e668e0a0c1f15fb535885965827f961db.pnj" width="1000">
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/8e50fa7edf8dce8d3f6e83904c4e41e6/2facbcd35dcbd997-d5/s540x810/0a7ba3919d549e8b2eb074abf76754e07fbf3cf5.pnj" width="500">
+</div>
+
+
 <img src="https://64.media.tumblr.com/0555d124be232092741c971fcf6b1018/f7926748b942db2e-b4/s540x810/25e4492da31def7091c1d3e066ced5c0a0a627d1.pnj" width="1000">
 
 <img src="https://i.pinimg.com/1200x/6a/05/21/6a0521674b72ee5c43cac7ff69d02cdb.jpg" width="250"><img src="https://i.pinimg.com/1200x/19/7f/98/197f9808a0e302866d75385e1ab22e37.jpg" width="250"><img src="https://i.pinimg.com/1200x/ab/42/f0/ab42f00f1ed1b24b48922c0293d092e1.jpg" width="250"><img src="https://i.pinimg.com/1200x/3d/c6/f9/3dc6f98d997ef278316ed844fac66274.jpg" width="250"><img src="https://i.pinimg.com/1200x/36/c9/2e/36c92e5b16d540b32bae9353e93a7ddf.jpg" width="250"> <- where do yall find these? i need help to find them pls!! :( if anyone could tell me..i saw a lot of these but on pinterest theyre lowk ugly ///
