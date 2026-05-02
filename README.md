@@ -4,7 +4,13 @@
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
 
-> a 6'0" buff gambler / 1000 years old king of curses would save me right now...
+> 1000 years old king of curses would save me right now...
+
+> "In the end I hope it’s you and me"
+> "In the darkness I would never leave- "
+> "We both saw this moment coming from afar, now here we are- Run from the sunlight Dracula!"
+> "Isn’t the view spectacular?"
+
 
 > _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
 
