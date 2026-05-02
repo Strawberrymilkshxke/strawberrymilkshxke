@@ -7,9 +7,9 @@
 > 1000 years old king of curses would save me right now...
 
 > "In the end I hope it’s you and me"
-> "In the darkness I would never leave- "
-> "We both saw this moment coming from afar, now here we are- Run from the sunlight Dracula!"
-> "Isn’t the view spectacular?"
+> In the darkness I would never leave- 
+> We both saw this moment coming from afar, now here we are- Run from the sunlight Dracula!
+> Isn’t the view spectacular?"
 
 
 > _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
