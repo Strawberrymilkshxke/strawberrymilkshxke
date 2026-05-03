@@ -4,6 +4,12 @@
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
 
+<div align="center">
+  
+"૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
+</div>
+
+
 > 1000 years old king of curses would save me right now...
 
 > "In the end I hope it’s you and me"
@@ -14,10 +20,6 @@
 
 > _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
 
-<div align="center">
-  
-"૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
-</div>
 
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
 
