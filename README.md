@@ -6,7 +6,7 @@
 
 <div align="center">
   
-"૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org)  ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
+"૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org) ʚ [TIKTOKKK](https://tiktok.com/@1tzren) ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
 </div>
 
 
