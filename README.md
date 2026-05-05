@@ -9,6 +9,10 @@
 "૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org) ʚ [TIKTOKKK](https://tiktok.com/@1tzren) ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
 </div>
 
+> i often posts on tumblr and started on tiktok ! <3
+
+> _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
+
 
 > 1000 years old king of curses would save me right now...
 
@@ -16,9 +20,6 @@
 > In the darkness I would never leave- 
 > We both saw this moment coming from afar, now here we are- Run from the sunlight Dracula!
 > Isn’t the view spectacular?"
-
-
-> _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
 
 
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
