@@ -13,13 +13,8 @@
 
 > _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
 
+> i dont know how to explain how much of comofort simon riley and sukuna gives me, just thinking or looking at them makes me feel so much better, simon's lore made me look at him so  much different, i love him so much i cant even explain </3 he deserves more love than lust that he gets from his fans..
 
-> 1000 years old king of curses would save me right now...
-
-> "In the end I hope it’s you and me"
-> In the darkness I would never leave- 
-> We both saw this moment coming from afar, now here we are- Run from the sunlight Dracula!
-> Isn’t the view spectacular?"
 
 
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
