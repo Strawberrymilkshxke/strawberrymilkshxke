@@ -6,7 +6,7 @@
 
 <div align="center">
   
-[<img src="https://i.postimg.cc/ZKHKy5hK/obraz-2026-05-10-213116643.png" width="170">](https://strawberrymilkshxke.straw.page)[<img src="https://i.postimg.cc/BQSJsf1S/obraz-2026-05-10-213205357.png" width="170">](https://1tzren.straw.page/)[<img src="https://i.postimg.cc/RhX5qqJp/obraz-2026-05-10-213257878.png" width="170">](https://strawberrybyi.straw.page/)[<img src="https://i.postimg.cc/52HdN447/obraz-2026-05-10-213328088.png" width="170">](https://strawberrydni.straw.page)[<img src="https://i.postimg.cc/T2QZVLhQ/obraz-2026-05-10-213418873.png" width="170">](https://strawberrymilkshxke.atabook.org)
+[<img src="https://i.postimg.cc/ZKHKy5hK/obraz-2026-05-10-213116643.png" width="190">](https://strawberrymilkshxke.straw.page)[<img src="https://i.postimg.cc/BQSJsf1S/obraz-2026-05-10-213205357.png" width="190">](https://1tzren.straw.page/)[<img src="https://i.postimg.cc/RhX5qqJp/obraz-2026-05-10-213257878.png" width="190">](https://strawberrybyi.straw.page/)[<img src="https://i.postimg.cc/52HdN447/obraz-2026-05-10-213328088.png" width="190">](https://strawberrydni.straw.page)[<img src="https://i.postimg.cc/T2QZVLhQ/obraz-2026-05-10-213418873.png" width="190">](https://strawberrymilkshxke.atabook.org)
 </div>
 
 <img src="https://64.media.tumblr.com/29e5ce77543b689166b344023bc9022b/92d26ae36e95ebe0-2b/s2048x3072/cb45075517054714c25b864d1eb6423979f8dd1a.pnj" width="1000">
