@@ -9,6 +9,13 @@
 "૮₍ •⤙•˶ [MAIN Straw](https://strawberrymilkshxke.straw.page) ー☆ [ALT Straw](https://1tzren.straw.page/) ୨♡୧ [BYI](https://strawberrybyi.straw.page/) ⋆୨୧˚ [DNI](https://strawberrydni.straw.page/) ♡𖦹 [tumblr!](https://www.tumblr.com/blog/1tzren) ✩ [sign my ATA](https://strawberrymilkshxke.atabook.org) ʚ [TIKTOKKK](https://tiktok.com/@1tzren) ʚ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎ɞ
 </div>
 
+
+<div align="center">
+
+[<img src="https://i.postimg.cc/wvftFNxX/obraz-2026-05-10-153957685.png" width="250">](https://strawberrymilkshxke.straw.page) [<img src="https://i.postimg.cc/rpqKkjK1/obraz-2026-05-10-154118460.png" width="250">](https://1tzren.straw.page/) [<img src="https://i.postimg.cc/sfbPrFyS/obraz-2026-05-10-154209048.png" width="250">](https://strawberrybyi.straw.page/) <img src="https://i.postimg.cc/0QFSPSTL/obraz-2026-05-10-154314638.png" width="250">](https://strawberrydni.straw.page) <img src="https://i.postimg.cc/9M6DvhTm/obraz-2026-05-10-154440120.png" width="250">](https://www.tumblr.com/blog/1tzren) <img src="https://i.postimg.cc/9FtDNsfF/obraz-2026-05-10-154513150.png" width="250">](https://strawberrymilkshxke.atabook.org) <img src="https://i.postimg.cc/PqNNJxQT/obraz-2026-05-10-154532324.png" width="250">](https://www.tiktok.com/@1tzren)
+</div>
+
+
 > i often posts on tumblr and started on tiktok ! <3
 
 > _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
