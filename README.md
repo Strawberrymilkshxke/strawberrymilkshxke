@@ -17,7 +17,7 @@
 
 <div align="center">
   
-[<img src="https://i.postimg.cc/9M6DvhTm/obraz-2026-05-10-154440120.png" width="500">](https://www.tumblr.com/blog/1tzren)[<img src="https://i.postimg.cc/PqNNJxQT/obraz-2026-05-10-154532324.png" width="500">](https://www.tiktok.com/@1tzren)
+[<img src="https://i.postimg.cc/9M6DvhTm/obraz-2026-05-10-154440120.png" width="350">](https://www.tumblr.com/blog/1tzren)[<img src="https://i.postimg.cc/PqNNJxQT/obraz-2026-05-10-154532324.png" width="350">](https://www.tiktok.com/@1tzren)
 </div>
 
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
