@@ -1,11 +1,23 @@
 > all strawberry dividers are made by [anitalenia](https://www.tumblr.com/anitalenia?source=share) on tumblr!
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
+<img src="https://i.pinimg.com/736x/a5/70/00/a57000c845917209d1bac5dcf858d4b3.jpg" width="1000">
+
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
+
 
 <div align="center">
   
-[<img src="https://i.postimg.cc/wvftFNxX/obraz-2026-05-10-153957685.png" width="170">](https://strawberrymilkshxke.straw.page)[<img src="https://i.postimg.cc/rpqKkjK1/obraz-2026-05-10-154118460.png" width="170">](https://1tzren.straw.page/)[<img src="https://i.postimg.cc/sfbPrFyS/obraz-2026-05-10-154209048.png" width="170">](https://strawberrybyi.straw.page/)[<img src="https://i.postimg.cc/0QFSPSTL/obraz-2026-05-10-154314638.png" width="170">](https://strawberrydni.straw.page)[<img src="https://i.postimg.cc/9M6DvhTm/obraz-2026-05-10-154440120.png" width="170">](https://www.tumblr.com/blog/1tzren)[<img src="https://i.postimg.cc/9FtDNsfF/obraz-2026-05-10-154513150.png" width="170">](https://strawberrymilkshxke.atabook.org)[<img src="https://i.postimg.cc/PqNNJxQT/obraz-2026-05-10-154532324.png" width="170">](https://www.tiktok.com/@1tzren)
+[<img src="https://i.postimg.cc/wvftFNxX/obraz-2026-05-10-153957685.png" width="170">](https://strawberrymilkshxke.straw.page)[<img src="https://i.postimg.cc/rpqKkjK1/obraz-2026-05-10-154118460.png" width="170">](https://1tzren.straw.page/)[<img src="https://i.postimg.cc/sfbPrFyS/obraz-2026-05-10-154209048.png" width="170">](https://strawberrybyi.straw.page/)[<img src="https://i.postimg.cc/0QFSPSTL/obraz-2026-05-10-154314638.png" width="170">](https://strawberrydni.straw.page)[<img src="https://i.postimg.cc/9FtDNsfF/obraz-2026-05-10-154513150.png" width="170">](https://strawberrymilkshxke.atabook.org)
+</div>
+
+<img src="https://64.media.tumblr.com/29e5ce77543b689166b344023bc9022b/92d26ae36e95ebe0-2b/s2048x3072/cb45075517054714c25b864d1eb6423979f8dd1a.pnj" width="1000">
+
+^ made by [muerdida](https://www.tumblr.com/muerdida?source=share) on tumblr
+
+<div align="center">
+  
+[<img src="https://i.postimg.cc/9M6DvhTm/obraz-2026-05-10-154440120.png" width="170">](https://www.tumblr.com/blog/1tzren)[<img src="https://i.postimg.cc/PqNNJxQT/obraz-2026-05-10-154532324.png" width="170">](https://www.tiktok.com/@1tzren)
 </div>
 
 > i often posts on tumblr and started on tiktok ! <3
