@@ -4,6 +4,9 @@
 <img src="https://i.pinimg.com/736x/a5/70/00/a57000c845917209d1bac5dcf858d4b3.jpg" width="1000">
 
 
+[ScreenRecording_06-04-2026 13-27-44_1 (1).mp3](https://github.com/user-attachments/files/28596429/ScreenRecording_06-04-2026.13-27-44_1.1.mp3)
+
+
 <div align="center">
   
 [<img src="https://i.postimg.cc/ZKHKy5hK/obraz-2026-05-10-213116643.png" width="190">](https://strawberrymilkshxke.straw.page)[<img src="https://i.postimg.cc/BQSJsf1S/obraz-2026-05-10-213205357.png" width="190">](https://1tzren.straw.page/)[<img src="https://i.postimg.cc/RhX5qqJp/obraz-2026-05-10-213257878.png" width="190">](https://strawberrybyi.straw.page/)[<img src="https://i.postimg.cc/52HdN447/obraz-2026-05-10-213328088.png" width="190">](https://strawberrydni.straw.page)[<img src="https://i.postimg.cc/T2QZVLhQ/obraz-2026-05-10-213418873.png" width="190">](https://strawberrymilkshxke.atabook.org)
