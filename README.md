@@ -1,6 +1,8 @@
 > all strawberry dividers are made by [anitalenia](https://www.tumblr.com/anitalenia?source=share) on tumblr!
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
+# IF YOU KNOW HOW TO POST VIDEOS ON GH PLEASE TELL MEE !! <3 THANK YOU
+
 <img src="https://i.pinimg.com/736x/a5/70/00/a57000c845917209d1bac5dcf858d4b3.jpg" width="1000">
 
 <div align="center">
