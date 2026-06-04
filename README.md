@@ -3,6 +3,10 @@
 
 # IF YOU KNOW HOW TO POST VIDEOS ON GH PLEASE TELL MEE !! <3 THANK YOU
 
+
+<video src='https://pl.pinterest.com/pin/29414203812538319/' width=180/>
+
+
 <img src="https://i.pinimg.com/736x/a5/70/00/a57000c845917209d1bac5dcf858d4b3.jpg" width="1000">
 
 <div align="center">
