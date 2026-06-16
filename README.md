@@ -6,13 +6,12 @@
 [strawpage](https://1tzren.straw.page) > [ata](https://strawberrymilkshxke.atabook.org) > [TIKTOK](https://www.tiktok.com/@1tzren)
 </div>
 
+
 <img src="https://i.pinimg.com/736x/a5/70/00/a57000c845917209d1bac5dcf858d4b3.jpg" width="1000">
 
 <img src="https://64.media.tumblr.com/29e5ce77543b689166b344023bc9022b/92d26ae36e95ebe0-2b/s2048x3072/cb45075517054714c25b864d1eb6423979f8dd1a.pnj" width="1000">
 
 > ^ made by [muerdida](https://www.tumblr.com/muerdida?source=share) on tumblr
-
-<img src="https://i.postimg.cc/k4JbKhpd/obraz-2026-05-10-212425160.png" width="360">
 
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
