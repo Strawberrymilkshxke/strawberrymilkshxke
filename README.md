@@ -16,9 +16,6 @@
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
 
-
-> _(つ≧▽≦)つ IF U CAN AND WANT PLEASE DRAW ON SP I APPRECIATE EVERYTHINGGGG HSHHHHH ˚ ༘♡ ⋆｡˚_
-
 > i dont know how to explain how much of comofort simon riley and sukuna gives me, just thinking or looking at them makes me feel so much better, simon's lore made me look at him so  much different, i love him so much i cant even explain </3 he deserves more love than lust that he gets from his fans..
 
 
@@ -41,15 +38,6 @@
 
 <img src="https://64.media.tumblr.com/1bd107dcc9bee90817ab2a4148e80e23/f7926748b942db2e-01/s2048x3072/4b7c93a9bf007cf129fcaa3f3877c8c5c9d6e178.gifv" width="1000">
 
-<img src="https://i.pinimg.com/1200x/1c/47/be/1c47be0ae96985a8d0e366f18f9b4e97.jpg" width="91"><img src="https://i.pinimg.com/736x/ac/03/2e/ac032e400165134ce15b058f704a5c72.jpg" width="130"><img src="https://i.pinimg.com/736x/ad/84/49/ad84494b246677f54dc52d9c022a25bc.jpg" width="131"><img src="https://i.pinimg.com/736x/db/0a/6c/db0a6c8778e6c8613af3f912bc1e5432.jpg" width="129"><img src="https://i.pinimg.com/736x/76/2a/12/762a12150b5542a28cab99d66bc6df98.jpg" width="130"><img src="https://i.postimg.cc/D0rZy5Q5/obraz-2026-05-06-164156401.png" width="130"><img src="https://i.pinimg.com/736x/5e/d7/ca/5ed7caa70718f14cfa966d514a86ddc0.jpg" width="95">
-
-
-<img src="https://64.media.tumblr.com/466b5ebf66268edf43b988e20ba7b649/25306075b622c475-a4/s540x810/01ac719e668e0a0c1f15fb535885965827f961db.pnj" width="1000">
-
-<img src="https://i.pinimg.com/736x/fe/02/c8/fe02c8459959399b010e709f0aefa871.jpg" width="129"><img src="https://i.pinimg.com/736x/ca/91/c3/ca91c34e5e0866d2e644a7075d7064ff.jpg" width="123"><img src="https://i.pinimg.com/736x/e9/27/86/e9278629044e170dc499c6fa0dee877b.jpg" width="129"><img src="https://i.pinimg.com/736x/b9/96/6d/b9966ddcd1e2a2df70a48ab363f772de.jpg" width="123"><img src="https://i.pinimg.com/736x/e1/0e/12/e10e12236aa42ac85337b5ff00d441c4.jpg" width="133"><img src="https://i.pinimg.com/736x/7c/96/0b/7c960b90f7bca43966777ed22b281989.jpg" width="120"><img src="https://i.pinimg.com/736x/a7/88/3e/a7883e6afbeffc93a116c56c75dddddc.jpg" width="87">
-
-
-<img src="https://64.media.tumblr.com/0555d124be232092741c971fcf6b1018/f7926748b942db2e-b4/s540x810/25e4492da31def7091c1d3e066ced5c0a0a627d1.pnj" width="1000">
 
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
@@ -60,9 +48,6 @@
 
 <img src="https://64.media.tumblr.com/0449a9f110928b56000461c8db0cf12a/f7926748b942db2e-c6/s540x810/171e1f79fa6a9f2be70ca7b497fd5ce61892b596.pnj" width="1000">
 
-<img src="https://64.media.tumblr.com/608ecea2fe3adeb15570bc984aedb4ed/aacfa4545b732505-fd/s540x810/ba8a3a842c3a3f24bd4bfffc7c37fa76a725e19b.gifv" width="1000">
-
-> ^ gif made by Belimah on tumblr!
 
 <img src="https://i.pinimg.com/736x/30/02/14/3002146a1a964f7204b8e3f2ee8f58a4.jpg" width="1000">
 
