@@ -7,12 +7,6 @@
 </div>
 
 
-<img src="https://i.pinimg.com/736x/a5/70/00/a57000c845917209d1bac5dcf858d4b3.jpg" width="1000">
-
-<img src="https://64.media.tumblr.com/29e5ce77543b689166b344023bc9022b/92d26ae36e95ebe0-2b/s2048x3072/cb45075517054714c25b864d1eb6423979f8dd1a.pnj" width="1000">
-
-> ^ made by [muerdida](https://www.tumblr.com/muerdida?source=share) on tumblr
-
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
 
@@ -45,11 +39,6 @@
 > 22/08/21 - 18/03/26 🐈 - Lucy, you were my first cat that i ever had, and you were my everything, i love you, and always will. Rest in peace my beautiful angel, i am really sorry. You changed my life forever and i will always miss you my dearest </3
 
 <img src="https://i.pinimg.com/1200x/0c/dc/e6/0cdce6a774f92baff3563257dd4edfdf.jpg" width="1000">
-
-<img src="https://64.media.tumblr.com/0449a9f110928b56000461c8db0cf12a/f7926748b942db2e-c6/s540x810/171e1f79fa6a9f2be70ca7b497fd5ce61892b596.pnj" width="1000">
-
-
-<img src="https://i.pinimg.com/736x/30/02/14/3002146a1a964f7204b8e3f2ee8f58a4.jpg" width="1000">
 
 
 <img src="https://64.media.tumblr.com/b15630ba72fb40ce56636af4c098c6c7/f7926748b942db2e-1a/s2048x3072/27dc7e9580e0d3ce3dbe0569b6f4aceea5d57801.pnj" width="1000">
