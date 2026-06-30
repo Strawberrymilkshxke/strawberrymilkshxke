@@ -3,7 +3,7 @@
 
 <div align="center">
   
-[strawpage](https://1tzren.straw.page) > [ata](https://strawberrymilkshxke.atabook.org) > [TIKTOK](https://www.tiktok.com/@1tzren)
+[strawpage](https://1tzren.straw.page) > [ata](https://strawberrymilkshxke.atabook.org) > [TIKTOK](https://www.tiktok.com/@1tzren) > [No life stealers - beware and report!](https://nolifepeople.straw.page)
 </div>
 
 
