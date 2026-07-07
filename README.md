@@ -11,7 +11,7 @@
 *"Howling for love I've never felt it I'm howling for love For an enemy Right on the edge I love to risk it And you got me Yeah you got meHowling for love But your lovely scеnt has put a spell on me"*
 </div>
 
-<img src="https://i.postimg.cc/CK4yVZQr/obraz-2026-07-07-220827515.png" width="1000">
+<img src="https://i.postimg.cc/Pf2sP8KZ/obraz-2026-07-07-231251817.png" width="1000">
 
 
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
