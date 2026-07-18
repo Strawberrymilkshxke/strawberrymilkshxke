@@ -3,7 +3,7 @@
 
 
 <p align="center">
-    <img width="500" src="https://i.postimg.cc/VN55qRxv/obraz-2026-07-17-160555992.png">
+    <img width="700" src="https://i.postimg.cc/VN55qRxv/obraz-2026-07-17-160555992.png">
 </p>
 
 > ^ art made by me ^_^
