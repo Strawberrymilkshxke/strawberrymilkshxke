@@ -6,20 +6,6 @@
 [strawpage](https://1tzren.straw.page) > [ata](https://strawberrymilkshxke.atabook.org) > [TIKTOK](https://www.tiktok.com/@1tzren)
 </div>
 
-<div align="center">
-
-<p align="center">
-    <img width="650" src="https://i.postimg.cc/VN55qRxv/obraz-2026-07-17-160555992.png">
-</p>
-
-> ^ art made by me ^_^
-  
-*"Howling for love I've never felt it I'm howling for love For an enemy Right on the edge I love to risk it And you got me Yeah you got meHowling for love But your lovely scеnt has put a spell on me"*
-</div>
-
-<img src="https://i.postimg.cc/Pf2sP8KZ/obraz-2026-07-07-231251817.png" width="1000">
-
-
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
 
@@ -46,6 +32,14 @@
 
 
 <img src="https://64.media.tumblr.com/1bd107dcc9bee90817ab2a4148e80e23/f7926748b942db2e-01/s2048x3072/4b7c93a9bf007cf129fcaa3f3877c8c5c9d6e178.gifv" width="1000">
+
+<div align="center">
+
+<p align="center">
+    <img width="650" src="https://i.postimg.cc/VN55qRxv/obraz-2026-07-17-160555992.png">
+</p>
+
+> ^ art made by me ^_^
 
 
 
