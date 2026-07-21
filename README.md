@@ -1,17 +1,19 @@
 > all strawberry dividers are made by [anitalenia](https://www.tumblr.com/anitalenia?source=share) on tumblr!
-<img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
+
+<img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
+
 
 <div align="center">
  
 [strawpage](https://1tzren.straw.page) > [ata](https://strawberrymilkshxke.atabook.org) > [TIKTOK](https://www.tiktok.com/@1tzren)
 </div>
 
-
-<img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
-
 <p align="center">
     <img width="650" src="https://i.pinimg.com/736x/9f/63/0c/9f630c3015ff2f40135d671118d7eea7.jpg">
 </p>
+
+
+<img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
 
