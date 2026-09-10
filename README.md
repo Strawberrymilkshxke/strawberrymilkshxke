@@ -38,6 +38,7 @@ $${\color{#ff0755}please \space never \space take \space my \space silly \space 
 $${\color{#e94b6c}Please \space remember \space I \space am \space a \space really \space awkward \space and \space shy \space person \space even \space after \space becoming \space friends.}$$
 $${\color{#e94b6c}i \space can \space easily \space get \space attached \space to \space someone \space making \space me \space really \space annoying \space to \space be \space around. \space I \space never \space come \space to \space c+h \space first, \space because}$$
 $${\color{#e94b6c}I \space do \space not \space want \space to \space be \space a \space burden \space to \space you.}$$
+$${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\space especially\space when\space I\space am\space getting\space covered,\space it\space is\space just\space comforting\space for\space me.♡}$$
 
 <img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
 
