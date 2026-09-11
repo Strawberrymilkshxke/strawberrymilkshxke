@@ -115,7 +115,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
  
 <p align="center">
-      <img src="https://i.postimg.cc/0jTy0Kxb/obraz-2026-09-11-232930223.png" width="250"><img src="https://i.postimg.cc/rsBwNRcJ/obraz-2026-09-11-233002374.png" width="450">
+      <img src="https://i.postimg.cc/0jTy0Kxb/obraz-2026-09-11-232930223.png" width="277"><img src="https://i.postimg.cc/rsBwNRcJ/obraz-2026-09-11-233002374.png" width="450">
 </p>
 
 > ^ MADE BY MY FRIEND PASHA!
