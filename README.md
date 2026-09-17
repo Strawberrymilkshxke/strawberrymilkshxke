@@ -159,7 +159,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
-      <img src="https://i.postimg.cc/yNjvf1fw/obraz-2026-09-17-212239648.png" width="450">
+      <img src="https://i.postimg.cc/vmvb3nFq/obraz-2026-09-17-213519284.png" width="450">
 </p>
 
 > ^ made by [Amia the biggest cyno and cynari lover!](https://github.com/hearts4cyno) !!!♡
