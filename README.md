@@ -73,7 +73,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/qRYyL6tB/obraz-2026-08-08-182645348.png" width="500">
  </p>
 
-> ^ MADE BY [@h0llowstrings](https://github.com/H0llowStrings) !!
+> ^ Doctor x Ren art made by [@h0llowstrings](https://github.com/H0llowStrings) !! ♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -81,16 +81,15 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/6qwBrVzb/obraz-2026-08-20-221922535.png" width="320"> <img src="https://i.postimg.cc/ncFHMkXV/gimmick-jv6b6gza4cloyfe.png" width="350">
 </p>
 
-> ^ made by [@nyankit](https://github.com/nyankit) !!!
+> ^ Ren art made by [@nyankit](https://github.com/nyankit) !!!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
-
 
 <p align="center">
        <img src="https://i.postimg.cc/HL1GnVcp/obraz-2026-09-07-235433079.png" width="400"><img src="https://i.postimg.cc/bJqK0W9s/obraz-2026-09-07-235446488.png" width="250">
 </p>
 
-> ^ Made by my [moot on tiktok from art trades](https://www.tiktok.com/@hurokoishere)!!
+> ^ Ren x D3rlord3 by my [moot on tiktok from art trades](https://www.tiktok.com/@hurokoishere)!! ♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
  
@@ -98,7 +97,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/v8Sdz6dJ/obraz-2026-09-07-194543745.png" width="550">
 </p>
 
-> ^ MADE BY MY FRIEND PASHA!
+> ^ Ren in Roblox made by Pasha! ♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -106,7 +105,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
        <img src="https://i.postimg.cc/mkCCbXK5/obraz-2026-09-07-234416576.png" width="600">
 </p>
 
-> ^ MADE BY MY [MY FAV CHUD, EVAN!](https://github.com/EvanescentDreamer)!
+> ^ Evan and Ren made by [my fav chud Evan!](https://github.com/EvanescentDreamer)!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -115,7 +114,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 </p>
 
-> ^ made by my friend Pasha!! ^O^ Ren x Doctor and his oc x capt'n clark!! <3!
+> ^ made by my friend Pasha!! ^O^ Ren x Doctor and his oc x capt'n clark!! <3!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
  
@@ -123,7 +122,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/0jTy0Kxb/obraz-2026-09-11-232930223.png" width="277"><img src="https://i.postimg.cc/rsBwNRcJ/obraz-2026-09-11-233002374.png" width="450">
 </p>
 
-> ^ MADE BY MY FRIEND PASHA!
+> ^ Ren art + pasha x cap'tn clark made by Pasha! ♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -131,7 +130,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/rm8pMrQ6/gimmick-jk0j41quxz7mp4d.png" width="450">
 </p>
 
-> ^ made by [@nyankit](https://github.com/nyankit) !!!
+> ^ Ren art made by [@nyankit](https://github.com/nyankit) !!!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -139,16 +138,15 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/26bzxNj1/obraz-2026-09-12-131309995.png" width="341"><img src="https://i.postimg.cc/zvT89wgq/obraz-2026-09-12-131342081.png" width="404">
 </p>
 
-> ^ made by [@nyankit](https://github.com/nyankit) !!!
+> ^ ren x doctor made by [@nyankit](https://github.com/nyankit) !!!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
-      <img src="https://i.postimg.cc/zvGmd2S7/obraz-2026-09-17-211856061.png" width="250"><img src="https://i.postimg.cc/L4xFqR2h/obraz-2026-09-17-211905110.png" width="350">
  <img src="https://i.postimg.cc/65Ss007v/obraz-2026-09-17-211920084.png" width="250">
 </p>
 
-> ^ made by [@nyankit](https://github.com/nyankit) !!!
+> ^ Art of Anatole Val (My GI oc) made by [@nyankit](https://github.com/nyankit) !!!
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -156,7 +154,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/1zsvcnKy/obraz-2026-09-17-212218549.png" width="450">
 </p>
 
-> ^ made by Vincent!
+> ^ made by Vincent!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
@@ -164,7 +162,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
       <img src="https://i.postimg.cc/yNjvf1fw/obraz-2026-09-17-212239648.png" width="450">
 </p>
 
-> ^ made by [Amia the biggest cyno and cynari lover!](https://github.com/hearts4cyno) !!!
+> ^ made by [Amia the biggest cyno and cynari lover!](https://github.com/hearts4cyno) !!!♡
 </details> </div>
 
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
