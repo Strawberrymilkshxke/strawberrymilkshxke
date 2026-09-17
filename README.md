@@ -148,13 +148,13 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
-      <img src="https://i.postimg.cc/zvGmd2S7/obraz-2026-09-17-211856061.png" width="450"><img src="https://i.postimg.cc/L4xFqR2h/obraz-2026-09-17-211905110.png" width="450">
- <img src="https://i.postimg.cc/65Ss007v/obraz-2026-09-17-211920084.png" width="600">
+      <img src="https://i.postimg.cc/zvGmd2S7/obraz-2026-09-17-211856061.png" width="350"><img src="https://i.postimg.cc/L4xFqR2h/obraz-2026-09-17-211905110.png" width="350">
+ <img src="https://i.postimg.cc/65Ss007v/obraz-2026-09-17-211920084.png" width="450">
 </p>
 
 > ^ made by [@nyankit](https://github.com/nyankit) !!!
 
-<img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
       <img src="https://i.postimg.cc/1zsvcnKy/obraz-2026-09-17-212218549.png" width="450">
@@ -162,7 +162,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 > ^ made by Vincent!
 
-<img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
       <img src="https://i.postimg.cc/yNjvf1fw/obraz-2026-09-17-212239648.png" width="450">
