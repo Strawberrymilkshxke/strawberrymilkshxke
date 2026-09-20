@@ -167,9 +167,9 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
-<img src="https://i.postimg.cc/nz6kWMtr/obraz-2026-09-20-103102185.png" width="380"><img src="https://i.postimg.cc/BQ5ghq7v/obraz-2026-09-20-103123784.png" width="410">
+<img src="https://i.postimg.cc/nz6kWMtr/obraz-2026-09-20-103102185.png" width="390"><img src="https://i.postimg.cc/BQ5ghq7v/obraz-2026-09-20-103123784.png" width="400">
  
-<img src="https://i.postimg.cc/L8HVwrGq/obraz-2026-09-20-103132980.png" width="260"><img src="https://i.postimg.cc/ZYdjdPrp/obraz-2026-09-20-103111610.png" width="340">
+<img src="https://i.postimg.cc/L8HVwrGq/obraz-2026-09-20-103132980.png" width="260"><img src="https://i.postimg.cc/ZYdjdPrp/obraz-2026-09-20-103111610.png" width="300">
 </p>
 
 > ^ Art of Anatole Val (My GI oc) And Ren made by [@nyankit](https://github.com/nyankit) !!!
