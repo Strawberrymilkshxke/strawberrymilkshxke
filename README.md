@@ -167,9 +167,9 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
-<img width="390" alt="image" src="https://github.com/user-attachments/assets/f2e4e989-c158-4428-83e0-4a554ba46bc9" /><img width="390" alt="image" src="https://github.com/user-attachments/assets/74c62268-7633-47b8-b9af-1a4d0904465e" />
+<img width="390" alt="image" src="https://github.com/user-attachments/assets/f2e4e989-c158-4428-83e0-4a554ba46bc9" /><img width="390" alt="image" src="https://github.com/user-attachments/assets/b4cb55b7-411b-4a8f-ab04-129055f7999f" />
 
-<img width="350" alt="image" src="https://github.com/user-attachments/assets/b20b4504-5136-4a10-be4e-511676a10cc8" /> <img width="350" alt="image" src="https://github.com/user-attachments/assets/fe557d53-7118-4636-a280-3c7ab59ce2ae" />
+<img width="359" alt="image" src="https://github.com/user-attachments/assets/b20b4504-5136-4a10-be4e-511676a10cc8" /> <img width="342" alt="image" src="https://github.com/user-attachments/assets/fe557d53-7118-4636-a280-3c7ab59ce2ae" />
  </p>
 
 > ^ Art of Anatole Val (My GI oc) And Ren made by [@nyankit](https://github.com/nyankit) !!!
