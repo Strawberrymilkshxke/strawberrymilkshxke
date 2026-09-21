@@ -19,7 +19,7 @@ $${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page)
 
 <div align="center">
   
-$${\color{#ff003f}Your\space Fellow\space Doctor\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(16+!)(˶ᵔ ᵕ ᵔ˶)}$$
+$${\color{#ff003f}Your\space Fellow\space Doctor\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
 </div>
 
 <img src="https://64.media.tumblr.com/58264defba7b7cae0d09a08e9d11e86d/7079d27fae73f78e-eb/s2048x3072/d016ed0dc5e5b5197c7e8dbc986bb4de07ad201f.pnj" width="1000">
