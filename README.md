@@ -167,7 +167,10 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 
 <p align="center">
-<img width="385" alt="image" src="https://github.com/user-attachments/assets/f8d8dfad-ebb4-4fd2-aee5-c15762bc4203" /><img src="https://i.postimg.cc/BQ5ghq7v/obraz-2026-09-20-103123784.png" width="400">
+<img width="645" height="823" alt="image" src="https://github.com/user-attachments/assets/f2e4e989-c158-4428-83e0-4a554ba46bc9" /><img width="645" height="823" alt="image" src="https://github.com/user-attachments/assets/74c62268-7633-47b8-b9af-1a4d0904465e" />
+
+<img width="856" height="753" alt="image" src="https://github.com/user-attachments/assets/d9feb0ef-7bfb-4c8c-91a9-a16d2892c692" /><img width="856" height="753" alt="image" src="https://github.com/user-attachments/assets/fe557d53-7118-4636-a280-3c7ab59ce2ae" />
+
 
  
 <img src="https://i.postimg.cc/L8HVwrGq/obraz-2026-09-20-103132980.png" width="260"><img src="https://i.postimg.cc/ZYdjdPrp/obraz-2026-09-20-103111610.png" width="295">
