@@ -5,7 +5,9 @@
 
 <div align="center">
 
-### $${\color{#ff0755}Ren​,\space \color{#ff0755}Strawberry,\space \color{#ff0755}Fat Tabby​۶ৎ}$$
+# $${\color{#ff004e}Don't\space cha,\space don't\space\space ya\space know\space I\space love\space ya?}$$
+
+# $${\color{#ff004e}Tell\space me\space that\space you\space love\space me\space or\space I'm\space gonna\space have\space to\space slaughter\space you!}$$
 </div>
 
 <div align="center">
