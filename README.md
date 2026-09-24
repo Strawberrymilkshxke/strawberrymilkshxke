@@ -5,9 +5,8 @@
 
 <div align="center">
 
-# $${\color{#ff004e}"Don't\space cha,\space don't\space\space ya\space know\space I\space love\space ya?}$$
-
-# $${\color{#ff004e}Tell\space me\space that\space you\space love\space me\space or\space I'm\space gonna\space have\space to\space slaughter\space you!"}$$
+$${\color{#ff004e}"Don't\space cha,\space don't\space\space ya\space know\space I\space love\space ya?}$$
+$${\color{#ff004e}Tell\space me\space that\space you\space love\space me\space or\space I'm\space gonna\space have\space to\space slaughter\space you!"}$$
 </div>
 
  <div align="center">
@@ -47,8 +46,6 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/1d21ea67799468df813021a3b3e6a849/457ff36b63a79b57-89/s1280x1920/f32c2a3e6b8e0a5077fe0508c84f070c5d447a56.pnj" width="1000">
 
 </details> </div>
-
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
 <img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
 
