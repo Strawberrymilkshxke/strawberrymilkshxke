@@ -20,14 +20,12 @@ $${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page)
 $${\color{#ff003f}Your\space Fellow\space Doctor\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
 </div>
 
-<img src="https://64.media.tumblr.com/58264defba7b7cae0d09a08e9d11e86d/7079d27fae73f78e-eb/s2048x3072/d016ed0dc5e5b5197c7e8dbc986bb4de07ad201f.pnj" width="1000">
+<img src="https://64.media.tumblr.com/be1bcb4ca0d10ffafa6f52f8ff9f6dd7/457ff36b63a79b57-dc/s1280x1920/ba6965ca3866df6d39be942412b77fc0d7393ae1.pnj" width="1000">
 
 
 <div align="center">
 <details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$</summary>
  
-<img src="https://64.media.tumblr.com/be1bcb4ca0d10ffafa6f52f8ff9f6dd7/457ff36b63a79b57-dc/s1280x1920/ba6965ca3866df6d39be942412b77fc0d7393ae1.pnj" width="1000">
-
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
 $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space One\space IS\space the\space favourite\space one.\space We\space All\space Are\space CANON!\space ily\space all\space yumes<3}$$
@@ -190,6 +188,9 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 </details> </div>
+
+<img src="https://64.media.tumblr.com/be1bcb4ca0d10ffafa6f52f8ff9f6dd7/457ff36b63a79b57-dc/s1280x1920/ba6965ca3866df6d39be942412b77fc0d7393ae1.pnj" width="1000">
+
 
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
