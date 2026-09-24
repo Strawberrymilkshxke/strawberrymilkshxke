@@ -10,10 +10,6 @@
 # $${\color{#ff004e}Tell\space me\space that\space you\space love\space me\space or\space I'm\space gonna\space have\space to\space slaughter\space you!"}$$
 </div>
 
-<div align="center">
- <img src="https://64.media.tumblr.com/ad42d701a4b79ecf2ed558917310b911/7079d27fae73f78e-8d/s2048x3072/a359eb8c9694b6cdfda48dd1697ae79ed7c97edc.pnj" width="850">
-</div>
-
  <div align="center">
 
 $${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
