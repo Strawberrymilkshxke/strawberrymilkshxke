@@ -5,9 +5,10 @@
 
 <div align="center">
 
-$${\color{#ff004e}"Don't\space cha,\space don't\space\space ya\space know\space I\space love\space ya?}$$
-$${\color{#ff004e}Tell\space me\space that\space you\space love\space me\space or\space I'm\space gonna\space have\space to\space slaughter\space you!"}$$
+$${\color{#d80240}"Talkin'\space to\space strangers\space online\space was\space the\space best\space decision\space I\space ever\space made!}$$
+$${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space internet's\space wild!!"}$$
 </div>
+
 
  <div align="center">
 
