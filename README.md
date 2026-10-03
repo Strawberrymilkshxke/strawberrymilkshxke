@@ -9,12 +9,6 @@ $${\color{#d80240}"Talkin'\space to\space strangers\space online\space was\space
 $${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space internet's\space wild!!"}$$
 </div>
 
-<div align="center">
-
-${\color{#C2F2D6FF}\text{ meow meow meow meow meow meow meow meow meow meow .}}$
-</div>
-
-
  <div align="center">
 
 $${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
