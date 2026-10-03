@@ -5,8 +5,14 @@
 
 <div align="center">
 
-${\color{#d80240}"Talkin'\space to\space strangers\space online\space was\space the\space best\space decision\space I\space ever\space made!}$
-${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space internet's\space wild!!"}$
+$${\color{#d80240}"Talkin'\space to\space strangers\space online\space was\space the\space best\space decision\space I\space ever\space made!}$$
+$${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space internet's\space wild!!"}$$
+</div>
+
+<div align="center">
+
+$${\color{#d80240}"Talkin' to strangers online was the best decision I ever made!}$$
+$${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space internet's\space wild!!"}$$
 </div>
 
 
