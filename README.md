@@ -218,6 +218,21 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 > ^ art made by me ^_^
 
+<div align="center">
+<details> <summary>$${\color{#FCDFA6}short\space info}$$</summary>
+
+<img src="https://64.media.tumblr.com/b5c499278243918bd2a99d8807aee064/c5589d06ec5bf682-75/s500x750/dac8696c5d21630e8d822b1254a53ef17ddd358b.gifv" width="69"/>
+$${\color{#FCDFA6}Do\space not\space mention\space c.ai\space or\space other\space apps\space similar\space on\space me.}$$ <img src="https://64.media.tumblr.com/8ffef5cf0233f3a009502fc53565aa60/c5589d06ec5bf682-42/s500x750/f9c3b8cc2ebee1b3c5709c30e3d8942b0ac8f8d4.gifv" width="69"/>
+                                                                            
+$${\color{#FCDFA6}dncopy\space my\space ponies\space and\space no\space inspo\space unless\space friends.}$$
+
+$${\color{#F4B886}if\space i\space dont\space respond\space im\space probably\space afk/offtab,\space Then\space w2i.}$$
+
+$${\color{#F4B886}TFC\space fans\space iwec\space unless\space friends\space please.}$$
+
+$${\color{#8FA5F4}c+h\space freely\space even\space if\space on\space DNI\space or\space other.}$$
+
+</details> </div>
 
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
