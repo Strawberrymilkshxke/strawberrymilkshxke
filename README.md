@@ -11,7 +11,7 @@ $${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space inter
 
 <div align="center">
 
-${\color{#d80240}"Talkin' to strangers online was the best decision I ever made!}$
+${\color{#C2F2D6FF}\text{ meow meow meow meow meow meow meow meow meow meow .}}$
 </div>
 
 
