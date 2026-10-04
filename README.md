@@ -3,10 +3,6 @@
 
 <img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
 
-<p align="center">
-$${\color{#FCDFA6}ic;\space @strawberrymlkshxke\space ♡}$$
-</div>
-
 <div align="center">
 
 $${\color{#d80240}"Talkin'\space to\space strangers\space online\space was\space the\space best\space decision\space I\space ever\space made!}$$
