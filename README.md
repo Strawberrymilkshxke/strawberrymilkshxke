@@ -201,8 +201,9 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <div align="center">
     <img width="650" src="https://i.postimg.cc/0yRYnzhK/obraz-2026-10-08-151155577.png">
- > ^ art made by me ^_^
 </div>
+
+ > ^ art made by me ^_^
 
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
