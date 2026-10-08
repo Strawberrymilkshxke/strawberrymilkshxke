@@ -202,6 +202,12 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <img src="https://64.media.tumblr.com/3e719a278befb29174fb957c8c610d1b/f7926748b942db2e-f6/s540x810/8fdbf39f2c900f0b26043c71ccc8c60fe8994f73.pnj" width="1000">
 
+<p align="center">
+    <img width="650" src="https://i.postimg.cc/0yRYnzhK/obraz-2026-10-08-151155577.png">
+</p>
+
+> ^ art made by me ^_^
+
 <img src="https://64.media.tumblr.com/9422098f699f47eb2984e6a4ee230a98/f7926748b942db2e-84/s2048x3072/46a11b4702eca31c364b233965450ae4d82de796.pnj" width="1000">
 
 <img src="https://i.pinimg.com/736x/fb/6f/4e/fb6f4e7955f912c8155669c04655b077.jpg" width="130"><img src="https://i.postimg.cc/SRRG82sw/obraz-2026-05-06-154608191.png" width="140"><img src="https://i.pinimg.com/736x/4d/ee/03/4dee032b9dd08f673e0e5b302856b87a.jpg" width="106"><img src="https://i.pinimg.com/736x/a1/6c/b2/a16cb26d030d2043917e2284f1ea210a.jpg" width="130"><img src="https://i.pinimg.com/1200x/cb/c6/7c/cbc67cbc8a132117733e3665a71eb907.jpg" width="130"><img src="https://i.pinimg.com/736x/53/53/76/5353769e4df00b1a8266f1faa54701c4.jpg" width="130"><img src="https://i.pinimg.com/736x/9f/20/48/9f20488e3b477d8f2a3b77f46459b4b1.jpg" width="80">
@@ -221,8 +227,6 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 
 <img src="https://64.media.tumblr.com/1bd107dcc9bee90817ab2a4148e80e23/f7926748b942db2e-01/s2048x3072/4b7c93a9bf007cf129fcaa3f3877c8c5c9d6e178.gifv" width="1000">
-
-<div align="center">
 
 <p align="center">
     <img width="650" src="https://i.postimg.cc/VN55qRxv/obraz-2026-07-17-160555992.png">
