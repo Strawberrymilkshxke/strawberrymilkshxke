@@ -200,7 +200,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
 <div align="center">
-    <img width="650" src="https://i.postimg.cc/0yRYnzhK/obraz-2026-10-08-151155577.png">
+    <img width="550" src="https://i.postimg.cc/0yRYnzhK/obraz-2026-10-08-151155577.png">
 </div>
 
  > ^ art made by me ^_^
