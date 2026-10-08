@@ -184,10 +184,12 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 > ^ made by [Nuha!](https://github.com/velvettoru) !!!♡
 
+<img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
+
 <p align="center">
-      <img src="https://i.postimg.cc/VsFPmtW8/obraz-2026-10-08-150503422.png" width="450"> <img src="https://i.postimg.cc/TwXBX2yx/obraz-2026-10-08-150555915.png" width="450">
+      <img src="https://i.postimg.cc/VsFPmtW8/obraz-2026-10-08-150503422.png" width="250"> <img src="https://i.postimg.cc/TwXBX2yx/obraz-2026-10-08-150555915.png" width="250">
       <img src="https://i.postimg.cc/qBwS9Tp4/obraz-2026-10-08-150645659.png" width="500"> 
-      <img src="https://i.postimg.cc/CL6txsBg/obraz-2026-10-08-150700488.png" width="450">
+      <img src="https://i.postimg.cc/CL6txsBg/obraz-2026-10-08-150700488.png" width="950">
 </p>
 
 > ^ made by my cutie patootie Pasha !!!♡
