@@ -11,7 +11,7 @@ $${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space inter
 
  <div align="center">
 
-$${\color{#fe9a8d}[StrawpageI!](https://1tzren.straw.page)}$$ $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
+$${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
 </div>
 
 <div align="center">
