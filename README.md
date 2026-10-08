@@ -18,7 +18,7 @@ $${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page)
 
 [<img src="https://i.postimg.cc/BQZNDP9Q/obraz-2026-10-08-145011664.png" width="250">](https://x.com/Strawbxrrymlk)[<img src="https://i.postimg.cc/GmVjZMBD/obraz-2026-10-08-145101181.png" width="250">](https://x.com/ThrainsWifee)
 $${\color{#ff003f}Your\space Fellow\space Doctor\space and\space Jestyn\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
-$${\color{#ff003f}click\space on\space the\space photos\space to\space get\space taken\space to\space my\space twt\space accs\space made\space for\space art/yumeslop\space i\space make!}$$
+$${\color{#c30843}click\space on\space the\space photos\space to\space get\space taken\space to\space my\space twt\space accs\space made\space for\space art/yumeslop\space i\space make!}$$
 </div> 
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
@@ -183,6 +183,14 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 </p>
 
 > ^ made by [Nuha!](https://github.com/velvettoru) !!!♡
+
+<p align="center">
+      <img src="https://i.postimg.cc/VsFPmtW8/obraz-2026-10-08-150503422.png" width="450"> <img src="https://i.postimg.cc/TwXBX2yx/obraz-2026-10-08-150555915.png" width="450">
+      <img src="https://i.postimg.cc/qBwS9Tp4/obraz-2026-10-08-150645659.png" width="500"> 
+      <img src="https://i.postimg.cc/CL6txsBg/obraz-2026-10-08-150700488.png" width="450">
+</p>
+
+> ^ made by my cutie patootie Pasha !!!♡
 
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 </details> </div>
