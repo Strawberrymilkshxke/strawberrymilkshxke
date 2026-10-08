@@ -11,12 +11,12 @@ $${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space inter
 
  <div align="center">
 
-$${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
+$${\color{#fe9a8d}[StrawpageI!](https://1tzren.straw.page)}$$ $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ [TIKTOK](https://www.tiktok.com/@1tzren) $${\color{#94849b}۶⋆ ۶ৎ ݁˖ . ݁}$$
 </div>
 
 <div align="center">
   
-$${\color{#ff003f}Your\space Fellow\space Doctor\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
+$${\color{#ff003f}Your\space Fellow\space Doctor\space and\space Jestyn\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
 </div>
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
