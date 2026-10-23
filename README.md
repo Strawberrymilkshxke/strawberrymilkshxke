@@ -35,14 +35,11 @@ $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\sp
 
 $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
 
-<div align="center">
-<img src="https://64.media.tumblr.com/bd5731f618cfb40269bba608284574c8/9ddad828c37e139f-32/s2048x3072/94577a9cdd8802795bad4bab15d2c1f345ffa2d2.pnj" width="500">
-</div>
-
-
 </details> </div>
 
-<img src="https://i.postimg.cc/bNj3p6qJ/obraz-2026-07-29-183927537.png" width="950">
+<div align="center">
+<img src="https://64.media.tumblr.com/bd5731f618cfb40269bba608284574c8/9ddad828c37e139f-32/s2048x3072/94577a9cdd8802795bad4bab15d2c1f345ffa2d2.pnj" width="800">
+</div>
 
 <div align="center">
  
