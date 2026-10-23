@@ -43,6 +43,8 @@ $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space 
 <img src="https://64.media.tumblr.com/7f514b35c090a2b56b97211e5ffa7d5f/5b18f5c0877680ef-5e/s2048x3072/7ae2b3af18569001a598761c2d54b017ea47d63e.pnj" width="500">
 $${\color{#ff0755}I\space use\space Yumeshipping\space as\space coping-mechanism.\space My\space F/Os\space give\space me\space so\space much\space comfort,\space so\space please\space don't\space be\space weird\space about\space it\space around\space me.}$$
 
+<img src="https://64.media.tumblr.com/a7093fa278678da31de13b57e93d7457/7e7ef783eb614239-cf/s2048x3072/42c2ca9c590e309e7c7a2d4a1e9ead8ffb04b9d0.pnj" width="450">
+
 $${\color{#ff427d}♡:\space Doctor\space -\space The\space Freak\space Circus}$$
 
 $${\color{#ff427d}♡:\space Capitano\space -\space Genshin\space Impact}$$
@@ -68,7 +70,7 @@ $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\sp
 
 <img src="https://64.media.tumblr.com/1a5c676be172f6fc33c72cbee64c7813/3d224e2cf7da5854-1f/s2048x3072/f95379ba651f273f7cfa123ae91de9c21c1702e9.pnj" width="100">
 
-$${\color{#ff427d}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
+$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#ff0755}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
 
 <img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
 
