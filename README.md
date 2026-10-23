@@ -1,6 +1,11 @@
 # HEAVY WIP!!
 
 <div align="center">
+ 
+<img src="https://64.media.tumblr.com/98b2cc61f00817a5be9f174cde0a0436/545c7cac02a7dc56-ed/s2048x3072/c7dcfd39a18d218d74c59160c7bddb63da5ad073.pnj" width="500">
+</div>
+
+<div align="center">
 <img width="350" src="https://i.postimg.cc/6qWpzQ6B/obraz-2026-10-23-210325476.png">
  
 </div>
@@ -18,9 +23,7 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 <div align="center">
  
 [<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="200">](https://1tzren.straw.page)
-
 [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="200">](https://en.pronouns.page/@strawberryshxke) 
-
 [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="200">](https://strawberrymilkshxke.atabook.org)
  
 </div>
@@ -65,7 +68,7 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <div align="center">
  
-<img src="https://64.media.tumblr.com/98b2cc61f00817a5be9f174cde0a0436/545c7cac02a7dc56-ed/s2048x3072/c7dcfd39a18d218d74c59160c7bddb63da5ad073.pnj" width="350">
+<img src="https://64.media.tumblr.com/7e584035484069c7eb6b0f0ae8f6fb5e/abd43fd6b15dc4e8-10/s640x960/d3ed81b298103519d26e3c37ef8b269ebd4e56e3.gifv" width="350">
 </div>
 
 <div align="center">
