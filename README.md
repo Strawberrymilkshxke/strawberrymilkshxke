@@ -9,7 +9,9 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 
 </div>
 
-.
+<div align="center">
+<img width="500" src="https://64.media.tumblr.com/d74e1ecfdd3c443ff8e02376e9a2b1ad/0c2ec245ca7fd467-6f/s400x600/a6ee79d784b6faf018111106c9becba66f7820af.gifv">
+</div>
 
 <div align="center">
 <details> <summary>$${\color{#ff0755}About \space me \space a \space bit!}$$</summary>
