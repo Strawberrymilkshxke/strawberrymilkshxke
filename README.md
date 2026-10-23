@@ -1,10 +1,6 @@
 # HEAVY WIP!!
 
 <div align="center">
-<img width="500" src="https://64.media.tumblr.com/d74e1ecfdd3c443ff8e02376e9a2b1ad/0c2ec245ca7fd467-6f/s400x600/a6ee79d784b6faf018111106c9becba66f7820af.gifv">
-</div>
-
-<div align="center">
 <img width="350" src="https://i.postimg.cc/6qWpzQ6B/obraz-2026-10-23-210325476.png">
  
 </div>
@@ -16,9 +12,22 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 <div align="center">
+<img width="500" src="https://64.media.tumblr.com/d74e1ecfdd3c443ff8e02376e9a2b1ad/0c2ec245ca7fd467-6f/s400x600/a6ee79d784b6faf018111106c9becba66f7820af.gifv">
+</div>
+
+<div align="center">
  
-[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page) [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">](https://en.pronouns.page/@strawberryshxke) [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)
+[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="200">](https://1tzren.straw.page)
+
+[<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="200">](https://en.pronouns.page/@strawberryshxke) 
+
+[<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="200">](https://strawberrymilkshxke.atabook.org)
  
+</div>
+
+<div align="center">
+ 
+<img src="https://64.media.tumblr.com/1dc00e7b6457de0989bb121995a01197/c8864d5bf7463398-dc/s400x600/d1fb3315a36adbfe057b013abf688e9b0c355b42.pnj" width="450">
 </div>
 
 <div align="center">
@@ -46,10 +55,17 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 </details> </div>
 
 <div align="center">
+<img src="https://64.media.tumblr.com/c6ef976aebee6f2249d2cda552b5fe3b/154893d0f56505cd-8b/s2048x3072/40d19df3513d5c044f6cdd13d84e6fd73fb0bef8.pnj" width="450">
+</div>
+
+<div align="center">
 
 [<img src="https://i.postimg.cc/BQZNDP9Q/obraz-2026-10-08-145011664.png" width="250">](https://x.com/Strawbxrrymlk)[<img src="https://i.postimg.cc/GmVjZMBD/obraz-2026-10-08-145101181.png" width="250">](https://x.com/ThrainsWifee)
-$${\color{#ff003f}Your\space Fellow\space Doctor\space and\space Jestyn\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
-$${\color{#c30843}click\space on\space the\space photos\space to\space get\space taken\space to\space my\space twt\space accs\space made\space for\space art/yumeslop\space i\space make!}$$
+</div>
+
+<div align="center">
+ 
+<img src="https://64.media.tumblr.com/98b2cc61f00817a5be9f174cde0a0436/545c7cac02a7dc56-ed/s2048x3072/c7dcfd39a18d218d74c59160c7bddb63da5ad073.pnj" width="350">
 </div>
 
 <div align="center">
@@ -201,5 +217,4 @@ $${\color{#c30843}click\space on\space the\space photos\space to\space get\space
 <div align="center">
 <img src="https://64.media.tumblr.com/bd5731f618cfb40269bba608284574c8/9ddad828c37e139f-32/s2048x3072/94577a9cdd8802795bad4bab15d2c1f345ffa2d2.pnj" width="800">
 </div>
-
 
