@@ -14,6 +14,9 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 <div align="center">
+[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page)[<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">](https://en.pronouns.page/@strawberryshxke)[<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)
+
+<div align="center">
 <details> <summary>$${\color{#ff0755}About \space me \space a \space bit!}$$</summary>
  
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
