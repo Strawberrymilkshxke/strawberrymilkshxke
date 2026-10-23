@@ -1,4 +1,6 @@
-
+<div align="center">
+<img width="500" src="https://i.postimg.cc/6qWpzQ6B/obraz-2026-10-23-210325476.png">
+</div>
 
 <div align="center">
 <details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$</summary>
