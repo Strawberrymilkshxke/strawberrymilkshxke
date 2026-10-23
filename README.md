@@ -1,7 +1,5 @@
 
 
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
-
 <div align="center">
 <details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$</summary>
  
@@ -176,7 +174,6 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 </details> </div>
 
-<img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
 
 
