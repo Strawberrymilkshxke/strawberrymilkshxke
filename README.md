@@ -28,8 +28,7 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 <div align="center">
- 
-<img src="https://64.media.tumblr.com/1dc00e7b6457de0989bb121995a01197/c8864d5bf7463398-dc/s400x600/d1fb3315a36adbfe057b013abf688e9b0c355b42.pnj" width="450">
+<img src="https://64.media.tumblr.com/c6ef976aebee6f2249d2cda552b5fe3b/154893d0f56505cd-8b/s2048x3072/40d19df3513d5c044f6cdd13d84e6fd73fb0bef8.pnj" width="450">
 </div>
 
 <div align="center">
@@ -56,9 +55,6 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 </details> </div>
 
-<div align="center">
-<img src="https://64.media.tumblr.com/c6ef976aebee6f2249d2cda552b5fe3b/154893d0f56505cd-8b/s2048x3072/40d19df3513d5c044f6cdd13d84e6fd73fb0bef8.pnj" width="450">
-</div>
 
 <div align="center">
  
