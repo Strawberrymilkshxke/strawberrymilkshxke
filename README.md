@@ -1,6 +1,10 @@
 # HEAVY WIP!!
 
 <div align="center">
+<img width="500" src="https://64.media.tumblr.com/d74e1ecfdd3c443ff8e02376e9a2b1ad/0c2ec245ca7fd467-6f/s400x600/a6ee79d784b6faf018111106c9becba66f7820af.gifv">
+</div>
+
+<div align="center">
 <img width="350" src="https://i.postimg.cc/6qWpzQ6B/obraz-2026-10-23-210325476.png">
  
 </div>
@@ -12,14 +16,8 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 <div align="center">
-<img width="500" src="https://64.media.tumblr.com/d74e1ecfdd3c443ff8e02376e9a2b1ad/0c2ec245ca7fd467-6f/s400x600/a6ee79d784b6faf018111106c9becba66f7820af.gifv">
-</div>
-
-<div align="center">
  
-[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="200">](https://1tzren.straw.page) 
-[<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="200">](https://en.pronouns.page/@strawberryshxke) 
-[<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="200">](https://strawberrymilkshxke.atabook.org)
+[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page) [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">](https://en.pronouns.page/@strawberryshxke) [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)
  
 </div>
 
@@ -46,10 +44,6 @@ $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\sp
 $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
 
 </details> </div>
-
-<div align="center">
-<img src="https://64.media.tumblr.com/c6ef976aebee6f2249d2cda552b5fe3b/154893d0f56505cd-8b/s2048x3072/40d19df3513d5c044f6cdd13d84e6fd73fb0bef8.pnj" width="450">
-</div>
 
 <div align="center">
 
@@ -207,6 +201,5 @@ $${\color{#c30843}click\space on\space the\space photos\space to\space get\space
 <div align="center">
 <img src="https://64.media.tumblr.com/bd5731f618cfb40269bba608284574c8/9ddad828c37e139f-32/s2048x3072/94577a9cdd8802795bad4bab15d2c1f345ffa2d2.pnj" width="800">
 </div>
-
 
 
