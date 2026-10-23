@@ -46,6 +46,13 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 </details> </div>
 
 <div align="center">
+
+[<img src="https://i.postimg.cc/BQZNDP9Q/obraz-2026-10-08-145011664.png" width="250">](https://x.com/Strawbxrrymlk)[<img src="https://i.postimg.cc/GmVjZMBD/obraz-2026-10-08-145101181.png" width="250">](https://x.com/ThrainsWifee)
+$${\color{#ff003f}Your\space Fellow\space Doctor\space and\space Jestyn\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
+$${\color{#c30843}click\space on\space the\space photos\space to\space get\space taken\space to\space my\space twt\space accs\space made\space for\space art/yumeslop\space i\space make!}$$
+</div>
+
+<div align="center">
  
 <details> <summary>$${\color{#d64b89}Fanarts!}$$</summary>
 
