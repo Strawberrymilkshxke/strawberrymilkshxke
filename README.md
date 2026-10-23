@@ -33,10 +33,22 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 
 <div align="center">
 <details> <summary>$${\color{#ff0755}About \space me \space a \space bit!}$$</summary>
+
+<img src="https://64.media.tumblr.com/e0cc6e02b6b9684bc3f5c874fc82f91b/3d224e2cf7da5854-5b/s2048x3072/6d5954030305847f7d879a8af2569aa00bbc0ab6.pnj" width="500">
  
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
 $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space One\space IS\space the\space favourite\space one.\space We\space All\space Are\space CANON!\space ily\space all\space yumes<3}$$
+
+<img src="https://64.media.tumblr.com/7f514b35c090a2b56b97211e5ffa7d5f/5b18f5c0877680ef-5e/s2048x3072/7ae2b3af18569001a598761c2d54b017ea47d63e.pnj" width="500">
+$${\color{#ff0755}I\space use\space Yumeshipping\space as\space coping-mechanism.\space My\space F/Os\space give\space me\space so\space much\space comfort,\space so\space please\space don't\space be\space weird\space about\space it\space around\space me.}$$
+$${\color{#ff0755}My\space Main\space F/o's\space are:}$$
+$${\color{#eda5a7}♡:\space Doctor\space -\space The\space Freak\space Circus}$$
+$${\color{#eda5a7}♡:\space Capitano\space -\space Genshin\space Impact}$$
+$${\color{#eda5a7}♡:\space Jestyn\space -\space Kingdom\space of\space Marionettes}$$
+$${\color{#eda5a7}♡:\space Simon\space "Ghost"\space Riley\space -\space Call\space of\space duty}$$
+$${\color{#eda5a7}✦:\space Heian\space Sukuna\space Ryomen\space -\space Jujutsu\space Kaisen}$$
+$${\color{#eda5a7}✦:\space Mafioso\space -\space Forsaken}$$
 
 <img src="https://64.media.tumblr.com/dfd757d065d4a6b4e6f29fd77582218e/457ff36b63a79b57-e3/s1280x1920/88663c6970394e0f0a95b44416d203783041485b.pnj" width="1000">
 
@@ -49,9 +61,12 @@ $${\color{#e94b6c}i \space can \space easily \space get \space attached \space t
 $${\color{#e94b6c}I \space do \space not \space want \space to \space be \space a \space burden \space to \space you.}$$
 $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\space especially\space when\space I\space am\space getting\space covered,\space it\space is\space just\space comforting\space for\space me.♡}$$
 
-<img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
+<img src="https://64.media.tumblr.com/1a5c676be172f6fc33c72cbee64c7813/3d224e2cf7da5854-1f/s2048x3072/f95379ba651f273f7cfa123ae91de9c21c1702e9.pnj" width="100">
 
 $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
+
+<img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
+
 
 </details> </div>
 
