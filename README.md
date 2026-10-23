@@ -5,11 +5,12 @@
  
 <div align="center">
 $${\color{#ff0755}✦:made\space by\space @nyankit}$$
- 
 </div>
 
+.
+
 <div align="center">
-<details> <summary>$${\color{#d64b89}About \space me \space a \space bit!}$$</summary>
+<details> <summary>$${\color{#ff0755}About \space me \space a \space bit!}$$</summary>
  
 $${\color{#ff0755}✦:I\space am\space a\space nonsharing\space yume,\space but\space I\space do\space not\space mind\space doubles\space at\space all.\space As\space long\space as\space they\space are\space not\space trying}$$
 $${\color{#ff0755}to\space make\space themselves\space a\space bigger\space fan\space of\space the\space f/o\space more\space than\space me.}$$
