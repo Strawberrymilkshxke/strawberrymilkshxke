@@ -15,7 +15,7 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 
 <div align="center">
  
-[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page) [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">(https://en.pronouns.page/@strawberryshxke)] [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)]
+[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page) [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">](https://en.pronouns.page/@strawberryshxke) [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)]
  
 </div>
 
