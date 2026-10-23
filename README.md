@@ -42,13 +42,20 @@ $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space 
 
 <img src="https://64.media.tumblr.com/7f514b35c090a2b56b97211e5ffa7d5f/5b18f5c0877680ef-5e/s2048x3072/7ae2b3af18569001a598761c2d54b017ea47d63e.pnj" width="500">
 $${\color{#ff0755}I\space use\space Yumeshipping\space as\space coping-mechanism.\space My\space F/Os\space give\space me\space so\space much\space comfort,\space so\space please\space don't\space be\space weird\space about\space it\space around\space me.}$$
+
 $${\color{#ff0755}My\space Main\space F/o's\space are:}$$
-$${\color{#eda5a7}♡:\space Doctor\space -\space The\space Freak\space Circus}$$
-$${\color{#eda5a7}♡:\space Capitano\space -\space Genshin\space Impact}$$
-$${\color{#eda5a7}♡:\space Jestyn\space -\space Kingdom\space of\space Marionettes}$$
-$${\color{#eda5a7}♡:\space Simon\space "Ghost"\space Riley\space -\space Call\space of\space duty}$$
-$${\color{#eda5a7}✦:\space Heian\space Sukuna\space Ryomen\space -\space Jujutsu\space Kaisen}$$
-$${\color{#eda5a7}✦:\space Mafioso\space -\space Forsaken}$$
+
+$${\color{#ff427d}♡:\space Doctor\space -\space The\space Freak\space Circus}$$
+
+$${\color{#ff427d}♡:\space Capitano\space -\space Genshin\space Impact}$$
+
+$${\color{#ff427d}♡:\space Jestyn\space -\space Kingdom\space of\space Marionettes}$$
+
+$${\color{#ff427d}♡:\space Simon\space "Ghost"\space Riley\space -\space Call\space of\space duty}$$
+
+$${\color{#ff427d}✦:\space Heian\space Sukuna\space Ryomen\space -\space Jujutsu\space Kaisen}$$
+
+$${\color{#ff427d}✦:\space Mafioso\space -\space Forsaken}$$
 
 <img src="https://64.media.tumblr.com/dfd757d065d4a6b4e6f29fd77582218e/457ff36b63a79b57-e3/s1280x1920/88663c6970394e0f0a95b44416d203783041485b.pnj" width="1000">
 
