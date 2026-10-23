@@ -4,7 +4,7 @@
 </div>
  
 <div align="center">
-$${\color{#ff0755}✦:made\space by\space @nyankit}$$
+$${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 .
