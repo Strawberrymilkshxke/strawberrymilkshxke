@@ -1,15 +1,4 @@
 
-> all strawberry dividers are made by [anitalenia](https://www.tumblr.com/anitalenia?source=share) on tumblr!
-
-<img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="500">
-
-
-<div align="center">
-
-[<img src="https://i.postimg.cc/BQZNDP9Q/obraz-2026-10-08-145011664.png" width="250">](https://x.com/Strawbxrrymlk)[<img src="https://i.postimg.cc/GmVjZMBD/obraz-2026-10-08-145101181.png" width="250">](https://x.com/ThrainsWifee)
-$${\color{#ff003f}Your\space Fellow\space Doctor\space and\space Jestyn\space Yume!\space I\space Also\space Like\space others\space ..ok..}$$ $${\color{#ff003f}(˶ᵔ ᵕ ᵔ˶)}$$
-$${\color{#c30843}click\space on\space the\space photos\space to\space get\space taken\space to\space my\space twt\space accs\space made\space for\space art/yumeslop\space i\space make!}$$
-</div> 
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
@@ -189,10 +178,6 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 
 <img src="https://64.media.tumblr.com/bf92e4a1ac22c78640225b0cf0b18ed6/89fbe9a50d596e94-fc/s540x810/fe735990c65f72a1a864d3ec69d5eaf45d10a679.pnj" width="1000">
 
-<div align="center">
-    <img width="550" src="https://i.postimg.cc/0yRYnzhK/obraz-2026-10-08-151155577.png">
-</div>
 
- > ^ art made by me ^_^
 
 
