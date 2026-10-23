@@ -1,18 +1,8 @@
 
 > all strawberry dividers are made by [anitalenia](https://www.tumblr.com/anitalenia?source=share) on tumblr!
 
-<img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="1000">
+<img src="https://64.media.tumblr.com/46117066e0fe6ce88329a705f7da2cea/f7926748b942db2e-af/s2048x3072/269870c64e09a58269708efda095a038f4a7322c.gifv" width="500">
 
-<div align="center">
-
-$${\color{#d80240}"Talkin'\space to\space strangers\space online\space was\space the\space best\space decision\space I\space ever\space made!}$$
-$${\color{#0dd1d5}Reality\space is\space boring,\space and\space the\space internet's\space wild!!"}$$
-</div>
-
- <div align="center">
-
-$${\color{#fe9a8d}˖ ݁♬⋆.˚𝄞}$$ [StrawpageI!](https://1tzren.straw.page) $${\color{#ffb7a8}. ݁⋆ ۶ৎ ݁˖ . ݁}$$ [pronouns card](https://en.pronouns.page/@strawberryshxke) $${\color{#fff0e0}-`✮´-}$$ [SIGN ATA](https://strawberrymilkshxke.atabook.org) $${\color{#d3ace6}˶ᵔ ᵕ ᵔ˶}$$ $${\color{#94849b}Love\space you\space all!۶⋆ ۶ৎ ݁˖ . ݁}$$
-</div>
 
 <div align="center">
 
