@@ -68,7 +68,7 @@ $${\color{#e94b6c}i \space can \space easily \space get \space attached \space t
 $${\color{#e94b6c}I \space do \space not \space want \space to \space be \space a \space burden \space to \space you.}$$
 $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\space especially\space when\space I\space am\space getting\space covered,\space it\space is\space just\space comforting\space for\space me.♡}$$
 
-<img src="https://64.media.tumblr.com/1a5c676be172f6fc33c72cbee64c7813/3d224e2cf7da5854-1f/s2048x3072/f95379ba651f273f7cfa123ae91de9c21c1702e9.pnj" width="100">
+<img src="https://64.media.tumblr.com/1a5c676be172f6fc33c72cbee64c7813/3d224e2cf7da5854-1f/s2048x3072/f95379ba651f273f7cfa123ae91de9c21c1702e9.pnj" width="450">
 
 $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#ff0755}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
 
