@@ -43,8 +43,6 @@ $${\color{#ff0755}The\space F/o\space loves\space us\space both.\space No\space 
 <img src="https://64.media.tumblr.com/7f514b35c090a2b56b97211e5ffa7d5f/5b18f5c0877680ef-5e/s2048x3072/7ae2b3af18569001a598761c2d54b017ea47d63e.pnj" width="500">
 $${\color{#ff0755}I\space use\space Yumeshipping\space as\space coping-mechanism.\space My\space F/Os\space give\space me\space so\space much\space comfort,\space so\space please\space don't\space be\space weird\space about\space it\space around\space me.}$$
 
-$${\color{#ff0755}My\space Main\space F/o's\space are:}$$
-
 $${\color{#ff427d}♡:\space Doctor\space -\space The\space Freak\space Circus}$$
 
 $${\color{#ff427d}♡:\space Capitano\space -\space Genshin\space Impact}$$
