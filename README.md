@@ -68,7 +68,7 @@ $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\sp
 
 <img src="https://64.media.tumblr.com/1a5c676be172f6fc33c72cbee64c7813/3d224e2cf7da5854-1f/s2048x3072/f95379ba651f273f7cfa123ae91de9c21c1702e9.pnj" width="100">
 
-$${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
+$${\color{#ff427d}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
 
 <img src="https://64.media.tumblr.com/d0c366e9a3545da155b6b9cb43f683d7/457ff36b63a79b57-16/s1280x1920/55f7634720c4b79507690590afe8cd8a46b0a8f6.pnj" width="1000">
 
