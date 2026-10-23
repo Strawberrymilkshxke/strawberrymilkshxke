@@ -15,7 +15,7 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 
 <div align="center">
  
-[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page) [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">](https://en.pronouns.page/@strawberryshxke) [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)]
+[<img src="https://i.postimg.cc/XJwTqcbg/obraz-2026-10-23-212749361.png" width="250">](https://1tzren.straw.page) [<img src="https://i.postimg.cc/zv76Sz31/obraz-2026-10-23-212805370.png" width="250">](https://en.pronouns.page/@strawberryshxke) [<img src="https://i.postimg.cc/xTjWjzFf/obraz-2026-10-23-212826855.png" width="250">](https://strawberrymilkshxke.atabook.org)
  
 </div>
 
@@ -42,10 +42,6 @@ $${\color{#ff0755}Did\space I\space mention\space I\space love\space cuddles?\sp
 $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space you\space like}$$ $${\color{#8fa5a1}Jimmy(mouthwashing),\space TCOOAL,\space Mavuitano,\space Varflins,\space Pierrot-X-Harlequin(orCanonxCanonTFC)\space etc.}$$ 
 
 </details> </div>
-
-<div align="center">
-<img src="https://64.media.tumblr.com/bd5731f618cfb40269bba608284574c8/9ddad828c37e139f-32/s2048x3072/94577a9cdd8802795bad4bab15d2c1f345ffa2d2.pnj" width="800">
-</div>
 
 <div align="center">
  
@@ -193,7 +189,9 @@ $${\color{#ff0755}♡:please\space do\space not\space interact\space if\space yo
 <img src="https://64.media.tumblr.com/94cd5233c8e91155cf389bcd235f6570/7079d27fae73f78e-56/s2048x3072/d9bf5f20f8210afa331f77a1fbfc02e59be0850f.pnj" width="1000">
 </details> </div>
 
-
+<div align="center">
+<img src="https://64.media.tumblr.com/bd5731f618cfb40269bba608284574c8/9ddad828c37e139f-32/s2048x3072/94577a9cdd8802795bad4bab15d2c1f345ffa2d2.pnj" width="800">
+</div>
 
 
 
