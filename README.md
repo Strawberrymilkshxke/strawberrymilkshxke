@@ -1,3 +1,4 @@
+<img src="https://64.media.tumblr.com/2d4894d08f4855c3ee2d95cdefa7487e/4ab9a8694513e790-c8/s2048x3072/2ee99fde919b06a19fc55683ce5a09b71fa6178e.pnj" width="1000">
 
 <div align="center">
 <img width="350" src="https://i.postimg.cc/6qWpzQ6B/obraz-2026-10-23-210325476.png">
