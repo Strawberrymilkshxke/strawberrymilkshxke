@@ -1,7 +1,7 @@
 <div align="center">
 <img width="350" src="https://i.postimg.cc/6qWpzQ6B/obraz-2026-10-23-210325476.png">
  
-$${\color{#ff0755}✦:^ made by @nyankit}$$
+$${\color{#ff0755}✦:made/space by/space @nyankit}$$
 </div>
 
 <div align="center">
