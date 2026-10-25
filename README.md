@@ -67,6 +67,8 @@ $${\color{#ff427d}♡:\space Jestyn\space -\space Kingdom\space of\space Marione
 
 $${\color{#ff427d}♡:\space Simon\space "Ghost"\space Riley\space -\space Call\space of\space duty}$$
 
+$${\color{#ff427d}♡:\space König\space -\space Call\space of\space duty}$$
+
 $${\color{#ff427d}✦:\space Heian\space Sukuna\space Ryomen\space -\space Jujutsu\space Kaisen}$$
 
 $${\color{#ff427d}✦:\space Mafioso\space -\space Forsaken}$$
