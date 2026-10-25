@@ -32,7 +32,7 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 <div align="center">
- <img width="500" src="https://github.com/user-attachments/assets/5809db02-f4f5-4a0d-8b3d-a4a9cabf9e53">
+ <img width="1000" src="https://github.com/user-attachments/assets/5809db02-f4f5-4a0d-8b3d-a4a9cabf9e53">
 </div>
 
 <div align="center">
