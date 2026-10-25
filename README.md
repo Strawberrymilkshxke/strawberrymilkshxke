@@ -27,6 +27,18 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
  
 </div>
 
+https://github.com/user-attachments/assets/5809db02-f4f5-4a0d-8b3d-a4a9cabf9e53
+
+<div align="center">
+ <img width="350" src="https://github.com/user-attachments/assets/5809db02-f4f5-4a0d-8b3d-a4a9cabf9e53">
+</div>
+
+<div align="center">
+ 
+$${\color{#ff0755}✦:made\space by\space my\space wifey,\space @hearts4cyno}$$
+
+</div>
+
 <div align="center">
 <img src="https://64.media.tumblr.com/c6ef976aebee6f2249d2cda552b5fe3b/154893d0f56505cd-8b/s2048x3072/40d19df3513d5c044f6cdd13d84e6fd73fb0bef8.pnj" width="450">
 </div>
