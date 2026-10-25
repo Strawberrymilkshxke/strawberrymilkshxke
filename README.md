@@ -28,11 +28,11 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 </div>
 
 <div align="center">
- <img width="250" src="https://64.media.tumblr.com/22ed6aefb1725f337b47719bd38a8c57/3c82bac22094e1b9-70/s2048x3072/adb743d363fe6ba208101e127cd66c7ba91a744f.pnj">
+ <img width="500" src="https://64.media.tumblr.com/22ed6aefb1725f337b47719bd38a8c57/3c82bac22094e1b9-70/s2048x3072/adb743d363fe6ba208101e127cd66c7ba91a744f.pnj">
 </div>
 
 <div align="center">
- <img width="450" src="https://github.com/user-attachments/assets/5809db02-f4f5-4a0d-8b3d-a4a9cabf9e53">
+ <img width="500" src="https://github.com/user-attachments/assets/5809db02-f4f5-4a0d-8b3d-a4a9cabf9e53">
 </div>
 
 <div align="center">
