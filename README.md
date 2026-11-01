@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/2d4894d08f4855c3ee2d95cdefa7487e/4ab9a8694513e790-c8/s2048x3072/2ee99fde919b06a19fc55683ce5a09b71fa6178e.pnj" width="1000">
+ <img src="https://64.media.tumblr.com/2d4894d08f4855c3ee2d95cdefa7487e/4ab9a8694513e790-c8/s2048x3072/2ee99fde919b06a19fc55683ce5a09b71fa6178e.pnj" width="1000">
 
 
 <div align="center">
@@ -62,6 +62,8 @@ $${\color{#ff0755}I\space use\space Yumeshipping\space as\space coping-mechanism
 $${\color{#ff427d}♡:\space Doctor\space -\space The\space Freak\space Circus}$$
 
 $${\color{#ff427d}♡:\space Capitano\space -\space Genshin\space Impact}$$
+
+$${\color{#ff427d}♡:\space Soulvester\space -\space Dandy'sn\space World}$$
 
 $${\color{#ff427d}♡:\space Jestyn\space -\space Kingdom\space of\space Marionettes}$$
 
