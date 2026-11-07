@@ -10,8 +10,6 @@
  
 $${\color{#ff0755}✦:made\space by\space nyankit}$$
 
-${\color{#ff0755}\text{meow meow meow meow}}$
-
 </div>
 
 <div align="center">
