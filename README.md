@@ -37,7 +37,8 @@ $${\color{#ff0755}✦:made\space by\space nyankit}$$
 
 <div align="center">
  
-$${\color{#ff0755}✦:made\space by\space my\space wifey,\space @hearts4cyno}$$
+$${\color{#ff0755}✦:made\space by\space my\space wifey,}$$
+$${\color{#ff0755}@hearts4cyno}$$
 
 </div>
 
